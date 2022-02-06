@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fxlur
 - 👀 Jack of all trades 
-- 📫 discord: ֆʟφ#0759
+- 📫 discord: xφ#0001
 
 <!---
 fxlur/fxlur is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
